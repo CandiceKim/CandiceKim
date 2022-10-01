@@ -45,5 +45,5 @@ https://candiceputmeon.tk/
 ### <a><img src="https://cdn.discordapp.com/emojis/842204546523463700.png?size=128" width="24px" height="24px" alt="VentiHeart"></a> Socials
 
 <p align="center">
-<a href="[https://www.linkedin.com/in/eric-kang-7052bb121/](https://www.linkedin.com/in/candice-kim-543a12237/)"><img src="https://img.shields.io/badge/LinkedIn-Candice%20Kim-blue"/></a>
+<a href="[https://www.linkedin.com/in/candice-kim-543a12237/]"><img src="https://img.shields.io/badge/LinkedIn-Candice%20Kim-blue"/></a>
 
