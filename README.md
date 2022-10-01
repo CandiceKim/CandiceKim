@@ -19,7 +19,7 @@ https://candiceputmeon.tk/
 
 **Experience**
 
-✅ Personal website
+✅ Personal website  
 ✅ TDSB Web Dev Club participant in high school
 
 
