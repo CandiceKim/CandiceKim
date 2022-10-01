@@ -1,4 +1,4 @@
-# <a href="https://emoji.gg/emoji/6949-gawrgurawavebackgroundless"><img src="https://cdn.discordapp.com/emojis/875552439556780083.png?size=240&quality=lossless" width="32px" height="32px" alt="heart"></a>Hi, I’m Candice! 
+# <a href="https://emoji.gg/emoji/6949-gawrgurawavebackgroundless"><img src="https://cdn.discordapp.com/emojis/875552439556780083.png?size=240&quality=lossless" width="32px" height="32px" alt="heart"></a> Hi, I’m Candice! 
 
 <!---
 CandiceKim/CandiceKim is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
