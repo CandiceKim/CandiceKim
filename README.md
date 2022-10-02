@@ -41,7 +41,7 @@ https://candiceputmeon.tk/
 </a>
 </p>
 
-### <a><img src="https://cdn.discordapp.com/emojis/842204546523463700.png?size=128" width="24px" height="24px" alt="VentiHeart"></a> Socials
+### <a><img src="https://emoji.gg/emoji/6949-gawrgurawavebackgroundless" width="24px" height="24px" alt="VentiHeart"></a> Socials
 
 <p align="center">
 <a href="https://www.linkedin.com/in/candice-kim-543a12237/"><img src="https://img.shields.io/badge/LinkedIn-Candice%20Kim-blue"/></a>
