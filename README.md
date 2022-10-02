@@ -11,10 +11,10 @@ https://candiceputmeon.tk/
 
 **About Me**
 
-👥   She/Her, 17 years old, Korean/Canadian  
+👩🏻‍💻   She/Her, 17 years old, Korean/Canadian  
 💡   Undergraduate student @ UW & WLU - Double Degree BCS/BBA (Co-op)   
-✍️   Hobbies include volleyball, ultimate frisbee, and traveling  
-💬   Always open to making new friends!  
+🏐   Hobbies include volleyball, ultimate frisbee, and traveling  
+😊   Always open to making new friends!  
 
 
 **Experience**
